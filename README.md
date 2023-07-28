@@ -40,7 +40,7 @@ JS
 ![a](https://media.discordapp.net/attachments/734728994842345545/1104570435422666842/314_sin_titulo_20230402031225.png?width=960&height=87)
 
 
-Si soy nerd
+Sim soy nerd
 
 ![erd](https://i.pinimg.com/236x/97/14/65/971465a344aba1ea8e5aff213102cb5b.jpg)
 
