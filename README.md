@@ -1,5 +1,6 @@
+![a](https://media.discordapp.net/attachments/734728994842345545/1103735290088132658/6877A1FD-238E-4321-B273-A6D86A8E92F5.png)![a](https://media.discordapp.net/attachments/734728994842345545/1103735290088132658/6877A1FD-238E-4321-B273-A6D86A8E92F5.png)
+
 ### Boas vindas ao meu perfil 🌺
-꒷꒦︶﹕︶︶﹕୨🌷୧﹕︶︶﹕︶꒦꒷
 
 
 Fã de C#
@@ -16,6 +17,10 @@ JS
 
 ☆ Editora 
 
+☆  And more!
+
+![a](https://media.discordapp.net/attachments/734728994842345545/1103746874793529424/37_Sem_Titulo_20230221174551.png)
+
 ![https://br.pinterest.com/Carolinhay/](https://img.shields.io/badge/Pinterest-%23E60023.svg?&style=for-the-badge&logo=Pinterest&logoColor=white
 ) 
 ![https://www.tiktok.com/@cappuuh](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white
@@ -27,12 +32,18 @@ JS
 ![Discord](https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white
 )  
 
-﹏🌸﹏🌸﹏🌸﹏🌸﹏🌸﹏🌸
+![a](https://media.discordapp.net/attachments/734728994842345545/1104570435422666842/314_sin_titulo_20230402031225.png?width=960&height=87)
+
 
 
 ![texto-alternativo](https://a-static.besthdwallpaper.com/league-of-legends-beautiful-anime-girl-with-red-hair-wallpaper-3840x1024-110592_152.jpg)
-﹏🌸﹏🌸﹏🌸﹏🌸﹏🌸﹏🌸
+![a](https://media.discordapp.net/attachments/734728994842345545/1104570435422666842/314_sin_titulo_20230402031225.png?width=960&height=87)
+
 
 Si soy nerd
 
 ![erd](https://i.pinimg.com/236x/97/14/65/971465a344aba1ea8e5aff213102cb5b.jpg)
+
+
+
+
