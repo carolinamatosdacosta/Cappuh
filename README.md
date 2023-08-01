@@ -1,4 +1,5 @@
-![a](https://media.discordapp.net/attachments/734728994842345545/1103735290088132658/6877A1FD-238E-4321-B273-A6D86A8E92F5.png)![a](https://media.discordapp.net/attachments/734728994842345545/1103735290088132658/6877A1FD-238E-4321-B273-A6D86A8E92F5.png)
+![a](https://media.discordapp.net/attachments/734728994842345545/1104570435422666842/314_sin_titulo_20230402031225.png?width=960&height=87)
+
 
 ### Boas vindas ao meu perfil 🌺
 
