@@ -33,8 +33,8 @@ JS
 )
 ![Discord](https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white
 )  
-
 ![a](https://media.discordapp.net/attachments/734728994842345545/1104570435422666842/314_sin_titulo_20230402031225.png?width=960&height=87)
+![a](https://img.shields.io/badge/Riot_Games-D32936?style=for-the-badge&logo=riot-games&logoColor=white)
 
 
 
