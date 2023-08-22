@@ -15,11 +15,11 @@ JS
 
 ☆ Perco tempo assistindo live
 
-☆ Minecraft player
+☆ Dona do CSMP!
 
 ☆ Editora 
 
-☆  And more!
+☆ And more!
 
 ![a](https://media.discordapp.net/attachments/734728994842345545/1103746874793529424/37_Sem_Titulo_20230221174551.png)
 
