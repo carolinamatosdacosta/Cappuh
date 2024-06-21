@@ -11,11 +11,11 @@ JS
 
 ☆ Lol player
 
-☆ 16 Anos
+☆ 17 Anos
 
 ☆ Perco tempo assistindo live
 
-☆ Dona do CSMP!
+☆ Designer Digital
 
 ☆ Editora 
 
@@ -46,7 +46,7 @@ JS
 
 Sim soy nerd
 
-![erd](https://i.pinimg.com/236x/97/14/65/971465a344aba1ea8e5aff213102cb5b.jpg)
+
 
 
 
